@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @rksri007
+- 👋 Hi, I’m @Sri
 - 👀 I’m in constant look out for great tech talent like you;
 - 🌱 I’m currently in Singapore; 
 - 💞️ Lets have a chat...
